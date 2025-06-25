@@ -11,7 +11,7 @@ Sou uma profissional na área de TI, super motivada para aprender programação 
 
 📫 Como me encontrar:
 
-- LinkedIn: https://www.linkedin.com/in/rafaela-barreto02/
+- LinkedIn: [Linkedin (https://www.linkedin.com/in/rafaela-barreto02/)]
 - E-mail: rafaela.obarreto@gmail.com
 - Instagram: @rafaelabarreto02
 
